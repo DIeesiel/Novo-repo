@@ -8,4 +8,4 @@ fala Raissa
 
 olha meus amigos são caloteiros
 
-oii, my friend
+oiii my friends!
